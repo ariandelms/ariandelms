@@ -1,2 +1,2 @@
 - this is ariel
- i'm working for make world easier.😎
+ i'm working to make world easier.😎
