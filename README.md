@@ -1,2 +1,2 @@
-- this is ariel
+- this is ariel,
  i'm working to make world easier.😎
